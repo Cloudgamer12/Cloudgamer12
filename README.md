@@ -4,7 +4,7 @@
 
 
 --Discord Server--
-https://discord.gg/zg9BwTUrkv
+https://discord.gg/4HtDPnWQvz
 
 --Discord Name & Tag--
 Cloud_Gamer12#9839
